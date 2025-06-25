@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://cg05-01.pages.dev/">暗网禁区</a>
 
-点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料/a>
+点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料</a>
 
 点击访问：<a href="https://hl410.pages.dev/">黑料社 今日黑料首页</a>
 
